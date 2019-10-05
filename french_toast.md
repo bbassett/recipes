@@ -6,7 +6,7 @@
 * 8 eggs
 * 2c milk
 * 1T brown sugar
-* 3/5t salt
+* 3/4t salt
 * 1T Vanilla extract
 * 2T butter
 
